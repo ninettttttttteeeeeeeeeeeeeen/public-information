@@ -1,18 +1,25 @@
-PLEASE USE THIS TEMPLATE TO SPREAD FACTS THAT WILL MAKE PEOPLE WHO BELIEVE GOVERNMENT LIES SEE THE TRUTH 
+Please use this template to spread facts in real life. 
 
-MAKE YOUR OWN STICKERS COVER EVERY SURFACE WITH TRUTH 
-BUY LABEL PAPER FROM STATIONARY SHOPS AND USE ANY A4 INKJET PRINTER. THE FONT IS ARIAL WITH SMALL SPACING BETWEEN LETTERS BUT WHO CARES. 
+These stickers can be printed at home on cheap label paper from any stationary shop or pound shop. 
 
-THIS PROJECT'S SOLE AIM IS TO RAISE AWARENESS OF GOVERNMENT CORRUPTION 
+If you want to stick to the formatting, use Arial and make the letter spacing lower. But if you do not have the skills to do this, the formatting is not really important. 
 
-TO PROVE THAT ALL THE WORDS ARE LIES HIDING PERSONAL GREED AND THE PEOPLE KNOW RIGHT FROM WRONG 
+This project's aim is to expose the government's corruption.  
 
-THIS IS A DECENTRALISED OFFICE AND INCLUDES EVERYONE 
+This is a decentralised office. Anyone can work here. We want to cover the real world with facts to awaken people. 
 
-WE SHOULD COVER EVERY SURFACE IN THE TRUTH 
+Stick them on newspapers, stick them on walls, bollards, in the local supermarket, wherever you can. Give them to everyone. 
 
-COVER DOWNING STREET, EVERY BOLLARD AND TRAFFIC LIGHT BUTTON, IT SHOULD BE THERE RIGHT IN EVERYONE'S LINE OF SIGHT. NO ECHO CHAMBER IRL 
+If you are using the template, please check and double check your research to ensure what you have written is a fact no one can argue with.
 
-END THE GENOCIDE 
-WE DEMAND CEASEFIRE IMMEDIATELY 
-END THE ISRAELI OCCUPATION 
+Greedy people use ideology to hide what they really care about, money and power. The last thing they want is for people to point out what they are trying to hide and distract from, and for this information to be everywhere, outside of government or media control. 
+
+We demand an end to genocide and ceasefire. 
+
+We also demand honesty and service from the people in government. 
+
+Right now, they can't be trusted to give us information that is not spin and propaganda. So we must do their job for them and show them how it is done. 
+
+Cut through all the noise and make the truth obvious. 
+
+If truth wasn't powerful, there wouldn't be so much effort made to present things in a certain way. 
